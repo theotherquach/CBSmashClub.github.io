@@ -1,1 +1,1 @@
-# CB-Smash-Club
+# CB Smash Club
